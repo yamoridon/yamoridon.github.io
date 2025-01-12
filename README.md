@@ -1,1 +1,0 @@
-# yamoridon.github.io
